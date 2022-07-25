@@ -1,6 +1,6 @@
 - 👋 Oi,meu nome é Annaluyza.
 - 👀 Estou interessado em tecnologia e programação.
-- 🌱 Estou aprendendo programação em pemsamento computacional.
+- 🌱 Estou aprendendo programação em pensamento computacional.
 - 💞️ Eu gosto de kpop e rock.
 - 📫 How to reach me ...
 
