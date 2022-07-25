@@ -1,6 +1,6 @@
-- 👋 Oi,meu nome é @Annaluyza2007
+- 👋 Oi,meu nome é Annaluyza.
 - 👀 Estou interessado em tecnologia e programação.
-- 🌱 Estou apre
+- 🌱 Estou aprendendo programação em pemsamento computacional.
 - 💞️ Eu gosto de kpop e rock.
 - 📫 How to reach me ...
 
